@@ -2,7 +2,7 @@
 
 | **Name:** | Manoj N | **Reg. No.:** | 26000161|
 |---|---|---|---|
-| **Date:** | | **Batch / Section:** | |
+| **Date:** | 7/11/2026| **Batch / Section:** | 305-26ODJ153|
 
 ---
 
